@@ -22,4 +22,4 @@
 - Waffles 🧇 >>> Pancakes 🥞 🤮 
 - 🎧 I listen to spanish music
 - 📺 Cobra Kai
-
+- I stream on Twitch
